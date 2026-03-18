@@ -1,8 +1,8 @@
-# 🫶 My Pookies
+#  My Pookies
 
-Aquí están mis pookies favoritos:
+ma best frends:
 
-## Fotos
+## sillys
 
 ![Foto 1](IMG-20260317-WA0024.jpg)
 ![Foto 2](IMG-20260317-WA0025.jpg)
