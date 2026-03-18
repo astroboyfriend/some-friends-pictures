@@ -1,6 +1,6 @@
-# 📸 Galería de Fotos de Amigos
+# 🫶 My Pookies
 
-Aquí están las fotos de mis amigos:
+Aquí están mis pookies favoritos:
 
 ## Fotos
 
